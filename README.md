@@ -8,3 +8,7 @@ https://nikku3gp.itch.io/the-wrath-of-anubis
 
 "Deeper and Deeper, A Murder Mystery" for LDJam 48
 https://fullmetal-automaton.itch.io/ldjam48-deeper-and-deeper-a-murder-mystery
+
+-------------------------------------------------
+
+My Artstation: https://www.artstation.com/nikku3gp
